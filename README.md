@@ -1,0 +1,4 @@
+- 👋 Olá, eu sou Pietro Peres
+- 👀 Tenho 17 anos
+- 🌱 Estou cursando Tecnologia da Informação 
+- 📫 ph1043356@gmail.com
